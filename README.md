@@ -2,7 +2,7 @@
 ![Header](./HeaderMaferVAG.png)
 ### Sobre mi 
 - 🎓 Ingenieria en Desarrollo de Software Interactivo y Videojuegos.
-- Fullstack Software Engineer. En proceso 🔃​
+- Fullstack Software Engineer Jr. En proceso 🔃​
 - Para saber más visita ​👉​ [MaferVAG](https://mafervag.github.io/MaferVAG/)
 - Gran interés en programación, desarrollo de software y game development.
 
