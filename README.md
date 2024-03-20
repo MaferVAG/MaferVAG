@@ -10,3 +10,4 @@
 - [LinkedIn](https://www.linkedin.com/in/mafer-vasquez-694ab12a0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 💼
 - [Instagram](https://www.instagram.com/mafervag?igsh=MWR2NDl5Ymw2cWZqdw==) ​🛸​
 - fvag0702@gmail.com ​📬​
+- 5545122455 📱​
